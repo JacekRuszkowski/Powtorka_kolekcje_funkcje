@@ -1,0 +1,1 @@
+# Powtorka_kolekcje_funkcje
